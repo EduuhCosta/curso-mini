@@ -1,1 +1,1 @@
-# curso-mini qualquer coisa
+# curso-mini qualquer coisa gosto de xerecuda
